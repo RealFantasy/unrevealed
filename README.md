@@ -1,2 +1,2 @@
-# unrevealed
+# Unrevealed
 An Unrevealed project
