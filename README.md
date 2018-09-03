@@ -1,2 +1,2 @@
 # Unrevealed
-An Unrevealed project with an Unrevealed name and an Unrevealed kitty (well, now it's ~~Un~~revealed).
+An Unrevealed project with an Unrevealed name and an Unrevealed kitty, we love kittys, aww.
